@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Kratosflip
+- 👀 I’m interested in crypto.
+- 🌱 I’m currently learning the basics of crypto.
